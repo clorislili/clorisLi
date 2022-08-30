@@ -1,2 +1,2 @@
-# https://liujiaming1996.github.io/
-Jianming's homepage
+# https://clorislili.github.io/clorisLi/
+Cloris(Xiaoqi) Li's homepage
